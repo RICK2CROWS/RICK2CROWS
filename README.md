@@ -1,5 +1,4 @@
-<img sarc="1200" height="960" alt="crow2" src="https://github.com/user-attachments/assets/8818904a-cd9e-4dff-a8f5-4949e497f501" />
 <div align="center">
-
-[mαin](https://github.com/wolfcutiee)  ⠀ ⠀<img width="20" height="20" alt="OX6LFeG" src="https://github.com/user-attachments/assets/75863f2b-fe4f-4ff0-9c93-7f630f9eda60" />
+<img sarc="736" height="736" alt="klol" src="https://github.com/user-attachments/assets/6cee9de6-9ae6-46e6-befd-997f36bb783c" />
+<img width="80" height="80" alt="image" src="https://github.com/user-attachments/assets/3c3debeb-16c2-4aec-ad09-b0104d2afc36" />
 
