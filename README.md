@@ -3,6 +3,6 @@
 
   <sup><sub>everything here belongs to me! ( ᴗ͈ˬᴗ͈) </sub></sup>
 
-hey<br>
+  <sup><sub>hey<br>
 follow my main<br>
-[@wolfcutie](https://github.com/wolfcutiee)<br>
+[@wolfcutie](https://github.com/wolfcutiee)<br> </sub></sup>
