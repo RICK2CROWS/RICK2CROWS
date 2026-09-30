@@ -5,4 +5,5 @@
 
   <sup><sub>hey<br>
 follow my main<br>
-[@wolfcutie](https://github.com/wolfcutiee)<br> </sub></sup>
+[@wolfcutie](https://github.com/wolfcutiee)<br>
+feel free to send in fanart [here](https://zeesart.straw.page)<br> </sub></sup>
